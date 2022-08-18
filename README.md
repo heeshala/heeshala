@@ -1,5 +1,5 @@
 
-### Hi there 👋 I'm Heeshala <br>## A passionate developer
+### Hi there 👋 I'm Heeshala <br> A passionate developer
 
 
 ## 🌐 Socials:
